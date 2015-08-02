@@ -2,7 +2,7 @@ Bluehost was founded in 2003 with one goal: to make a better hosting company. Bu
 
 Why Bluehost?
 
-Money-back guarantee
+#Money-back guarantee
 1 FREE domain registration
 Unlimited domain hosting
 1-Click MOJO Marketplace installations
