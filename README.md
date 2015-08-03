@@ -10,3 +10,5 @@ Bluehost was founded in 2003 with one goal: to make a better hosting company. Bu
 7. Unlimited IMAP & POP3 e-mail support 
 8. Our technical support leads the industry and is located here in the USA. 
 9. We offer 24/7 chat, email and phone support to our customers 
+
+Use our <a href="http://www.wpgra.com/bluehost-coupon-code/">bluehost coupon code</a> that will reduce current cost to almost 65%. If you are about to  buy hosting plan from them then use our awesome discount offer and of course its limited time wont last long. So take action now before deal is expired.
